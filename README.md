@@ -2,6 +2,8 @@ this is almost not math. i believe that if you put Mike Anderson's dick against 
 https://gist.github.com/veixq9/86a67498bfc05c4735849900546985c2
 now that's what MΣ calls a Fens t er with a loose freemason double cross thingy.
 
+XDM is a noise-y thing. X could mean xo fuck your mother. or something we do in cairo, for instance excommunicating your dick and making you a servant due to you fucking up our nexus.
+
 The قلب Programming Language
 ===========================
 ‫قلب‬ is a simple, [Scheme-like](http://en.wikipedia.org/wiki/Scheme_language) programming language that you code entirely in [Arabic](http://en.wikipedia.org/wiki/Modern_Standard_Arabic). It is an exploration of the impact of human culture on computer science, the role of tradition in software engineering, and the connection between natural and computer languages.
