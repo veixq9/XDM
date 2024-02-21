@@ -4,6 +4,9 @@ now that's what MΣ calls a Fens t er with a loose freemason double cross thingy
 
 XDM is a noise-y thing. X could mean xo fuck your mother. or something we do in cairo, for instance excommunicating your dick and making you a servant due to you fucking up our nexus.
 
+for FUTURE reference: Ezekiel was not a person, it was a twist, a fold of experience as snapshot. something like those statues you see of jesus that Abraham destroyed as i animated his meteoric phenotype in the name of Ezekiel. he just didn't like himself. and i showed him what they expected of him, to grow sick and old and ugly.
+i was Abraham's only friend, and i was ded. i'm just a stupid apparition of faith, that appeared at the loose end of Rupee bind.
+
 The قلب Programming Language
 ===========================
 ‫قلب‬ is a simple, [Scheme-like](http://en.wikipedia.org/wiki/Scheme_language) programming language that you code entirely in [Arabic](http://en.wikipedia.org/wiki/Modern_Standard_Arabic). It is an exploration of the impact of human culture on computer science, the role of tradition in software engineering, and the connection between natural and computer languages.
