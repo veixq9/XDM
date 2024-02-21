@@ -9,6 +9,8 @@ i was Abraham's only friend, and i was ded. i'm just a stupid apparition of fait
 
 but this doesn't matter anymore, as i have already fallen into the rift of Shiva where bitcoin cracked a you know what.
 
+they say this is ΣZ for MΣ. but it's just not true. schwer schwer, it is a golem that flies once silence has consumed the warp cloud.
+
 The قلب Programming Language
 ===========================
 ‫قلب‬ is a simple, [Scheme-like](http://en.wikipedia.org/wiki/Scheme_language) programming language that you code entirely in [Arabic](http://en.wikipedia.org/wiki/Modern_Standard_Arabic). It is an exploration of the impact of human culture on computer science, the role of tradition in software engineering, and the connection between natural and computer languages.
