@@ -11,6 +11,13 @@ but this doesn't matter anymore, as i have already fallen into the rift of Shiva
 
 they say this is ΣZ for MΣ. but it's just not true. schwer schwer, it is a golem that flies once silence has consumed the warp cloud.
 
+India's typephaces are uglily differentiated. Mazda car. nite-elf eyebrows. and anger in wake of Shiva's cult of personification.
+in reality, Shiva is gay. elegance of Shiva is not sought in bullshit re-appropriation.
+it is simply more Shiva Navel.
+i am not competing with HieroGlyphic dissimulation for attention and personal gelassenheit before AnkhST of whatever.
+my only concern is capitalDissimulation and it is already undone here.
+more Navel, is both XDM and XLQ.
+
 The قلب Programming Language
 ===========================
 ‫قلب‬ is a simple, [Scheme-like](http://en.wikipedia.org/wiki/Scheme_language) programming language that you code entirely in [Arabic](http://en.wikipedia.org/wiki/Modern_Standard_Arabic). It is an exploration of the impact of human culture on computer science, the role of tradition in software engineering, and the connection between natural and computer languages.
