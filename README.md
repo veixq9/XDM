@@ -1,3 +1,5 @@
+this is almost not math. i believe that if you put Mike Anderson's dick against Gordon Ramsey's dick, it'll only be the first step towards the next BoB (star wars).
+
 The قلب Programming Language
 ===========================
 ‫قلب‬ is a simple, [Scheme-like](http://en.wikipedia.org/wiki/Scheme_language) programming language that you code entirely in [Arabic](http://en.wikipedia.org/wiki/Modern_Standard_Arabic). It is an exploration of the impact of human culture on computer science, the role of tradition in software engineering, and the connection between natural and computer languages.
