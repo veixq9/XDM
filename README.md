@@ -1,4 +1,6 @@
 this is almost not math. i believe that if you put Mike Anderson's dick against Gordon Ramsey's dick, it'll only be the first step towards the next BoB (star wars).
+https://gist.github.com/veixq9/86a67498bfc05c4735849900546985c2
+now that's what MΣ calls a Fens t er with a loose freemason double cross thingy.
 
 The قلب Programming Language
 ===========================
