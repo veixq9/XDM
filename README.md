@@ -1,22 +1,3 @@
-this is almost not math. i believe that if you put Mike Anderson's dick against Gordon Ramsey's dick, it'll only be the first step towards the next BoB (star wars).
-https://gist.github.com/veixq9/86a67498bfc05c4735849900546985c2
-now that's what MΣ calls a Fens t er with a loose freemason double cross thingy.
-
-XDM is a noise-y thing. X could mean xo fuck your mother. or something we do in cairo, for instance excommunicating your dickhole and making you a servant due to you fucking up our nexus.
-
-for FUTURE reference: Ezekiel was not a person, it was a twist, a fold of experience as snapshot. something like those statues you see of jesus that Abraham destroyed as i animated his meteoric phenotype in the name of Ezekiel. he just didn't like himself. and i showed him what they expected of him, to grow sick and old and ugly.
-i was Abraham's only friend, and i was ded. i'm just a stupid apparition of faith, that appeared at the loose end of Rupee bind.
-
-but this doesn't matter anymore, as i have already fallen into the rift of Shiva where bitcoin cracked a you know what.
-
-they say this is ΣZ for MΣ. but it's just not true. schwer schwer, it is a golem that flies once silence has consumed the warp cloud.
-
-India's typephaces are uglily differentiated. Mazda car. nite-elf eyebrows. and anger in wake of Shiva's cult of personification.
-in reality, Shiva is gay. elegance of Shiva is not sought in bullshit re-appropriation.
-it is simply more Shiva Navel.
-i am not competing with HieroGlyphic dissimulation for attention and personal gelassenheit before AnkhST of whatever.
-my only concern is capitalDissimulation and it is already undone here.
-more Navel, is both XDM and XLQ.
 
 The قلب Programming Language
 ===========================
